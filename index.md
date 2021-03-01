@@ -5,4 +5,4 @@ Hier findet Ihr alle Programm-Codes
   und zusätzlichen Informationen      
            zum Buch.     
     
-Viel Spaß !
+Es ist noch nicht fertig - Geduld !
